@@ -8,5 +8,5 @@ of collecting lottery numbers to be entered into
 the 2A template.
 
 Collected numbers will be from New Jersey, Pennsylvania and Delaware.
-This is probably useful only to Courier-Post staffers.
+This item is probably useful only to Courier-Post staffers.
 But knock yourself out, if you want to assemble your own lottery story.
